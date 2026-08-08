@@ -1,5 +1,9 @@
 ## You need. Youoy neen to shuuuu th fuuuuuuuuu up fuck
 
+Anyways, I basically do some cool shit like idk
+
+I know C and C# but not that pesky bastard C++ with its evil fucking syntax
+
 <!--
 **MikkoMaggieMore/mikkomaggiemore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
