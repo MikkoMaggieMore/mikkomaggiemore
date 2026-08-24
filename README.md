@@ -30,7 +30,7 @@ eugh...
 
 "YA CAN'T HAVE A CUP FOR SNACK!!!" -Steve Burns, Blues Clues 1994 Pilot
 
-"....................AI!!!" -Charles White
+"....................AI!!!" -Charles Christopher White II
 
 "You CANNOT post ai slop to YouTube...(Unless you're using Veo 3)" -Neal Mohan
 
