@@ -37,3 +37,5 @@ eugh...
 "Is this like sexporn?" -DeadwingDork
 
 "Hey everyone, we are LIVE from my BACKYARD where I am smoking a BRISKET, and some RIBS" -Zark.MP
+
+"C++? Oh my god, this language sucks. C++? more like Pee. You know who doesn't like this language? -anguage? {...}" -Jay Kizer
