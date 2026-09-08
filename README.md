@@ -41,3 +41,5 @@ eugh...
 "C++? Oh my god, this language sucks. C++? more like Pee. You know who doesn't like this language? -anguage? {...}" -Jay Kizer
 
 "" -Rufus (WorldsOnline)
+
+"Fruit salad, Yummy yummy!" -The Wiggles
